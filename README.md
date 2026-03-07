@@ -1,5 +1,5 @@
 <p align="center">　
-haii this is my 7n7sona (the photo is tinted)
+## 　　　　　　　　　　　　　　　　　　　　　　haii this is my 7n7sona (the photo is tinted)
 <p align="center">　
 im N͟O͟T͟ a 7n7 kin or fictkin 
 <p align="center">　　　　　
