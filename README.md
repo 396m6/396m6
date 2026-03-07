@@ -7,7 +7,3 @@
 <img width="257" height="320" alt="image" src="https://github.com/user-attachments/assets/63378612-10dd-4f42-94a5-72cf812d65f5" />
 </p>
 <img width="889" height="242" alt="image" src="https://github.com/user-attachments/assets/0238c7ad-bbf5-4e02-a404-9c3da6866ba0" />
-
-```test
-   hi
-```
