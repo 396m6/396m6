@@ -1,3 +1,4 @@
+<img width="889" height="242" alt="image" src="https://github.com/user-attachments/assets/8ed5f079-212d-4233-8cb6-340e4a9ae121" />
 <p align="center">　
 𝙝𝙖𝙞𝙞 𝙩𝙝𝙞𝙨 𝙞𝙨 𝙢𝙮 7𝙣7𝙨𝙤𝙣𝙖 (𝙩𝙝𝙚 𝙥𝙝𝙤𝙩𝙤 𝙞𝙨 𝙩𝙞𝙣𝙩𝙚𝙙)
 <p align="center">　
