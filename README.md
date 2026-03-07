@@ -7,7 +7,7 @@
   <img src="https://komarev.com/ghpvc/?username=396m6&label=visitors&color=4a3932" alt="visitor counter">
 </p>
 <p align="center">　　　　　
-<img width="257" height="320" alt="image" src="https://github.com/user-attachments/assets/63378612-10dd-4f42-94a5-72cf812d65f5" />
+<img width="476" height="329" alt="image" src="https://github.com/user-attachments/assets/6a1393ca-abfa-42a6-b24f-8eb39bf20a52" />
 </p>
 <div align="center">
   <details>
