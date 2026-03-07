@@ -17,10 +17,5 @@
 </div>
 <div align="center">
 𝐚͟𝐥͟𝐥͟ 𝐨͟𝐟͟ 𝐭͟𝐡͟𝐞͟𝐬͟𝐞͟ 𝐫͟𝐨͟𝐛͟𝐥͟𝐨͟𝐱͟ 𝐫͟𝐞͟𝐧͟𝐝͟𝐞͟𝐫͟𝐬͟ 𝐚͟𝐫͟𝐞͟ 𝐦͟𝐚͟𝐝͟𝐞͟ 𝐛͟𝐲͟ 𝐦͟𝐞͟ !͟
-
-
-<div align="center">
-♬ 　𝙏𝙝𝙞𝙨 𝙛𝙚𝙚𝙡𝙞𝙣𝙜 𝙬𝙞𝙡𝙡 𝙥𝙖𝙨𝙨　 ♬
-By Take Care
  
  <img width="889" height="242" alt="image" src="https://github.com/user-attachments/assets/0238c7ad-bbf5-4e02-a404-9c3da6866ba0" />
