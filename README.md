@@ -21,6 +21,6 @@
 
 
 ♬ 　𝙏𝙝𝙞𝙨 𝙛𝙚𝙚𝙡𝙞𝙣𝙜 𝙬𝙞𝙡𝙡 𝙥𝙖𝙨𝙨　 ♬
-------------------------------
+==
  
  <img width="889" height="242" alt="image" src="https://github.com/user-attachments/assets/0238c7ad-bbf5-4e02-a404-9c3da6866ba0" />
