@@ -8,7 +8,7 @@
 </p>
 <div align="center">
   <details>
-    <summary>info abt my 7n7sona</summary>
+    <summary>𝐢𝐧𝐟𝐨 𝐚𝐛𝐭 𝐦𝐲 𝟕𝐧𝟕𝐬𝐨𝐧𝐚</summary>
     <p>his name is 396m6 but his actual name is arden! in lore he was a fan of 007n7 originally (might change this but i dont know) arden is a demiboy and is amab, hes asexual</p>
   </details>
 </div>
