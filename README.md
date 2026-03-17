@@ -9,6 +9,7 @@
 <p align="center">　　　　　
 <img width="476" height="329" alt="image" src="https://github.com/user-attachments/assets/6a1393ca-abfa-42a6-b24f-8eb39bf20a52" />
 </p>
+
 <div align="center">
   <details>
     <summary>· ⌒ㅤֺ 𝐢𝐧𝐟𝐨 𝐚𝐛𝐭 𝐦𝐲 𝟕𝐧𝟕𝐬𝐨𝐧𝐚⠀　₊⠀⠀︶ 　♡</summary>
